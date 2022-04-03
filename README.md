@@ -2,7 +2,8 @@
 
 Cupid's Last Wish :cupid: 유튜브 영상 한국어 자막(.srt)파일입니다.
 
-원본 영어 자막: GMMTV OFFICIAL
+원본 영어 자막: GMMTV OFFICIAL (YOUTUBE)
+한국어 자막: @coconut_eater (TWITTER)
 
 #
 
